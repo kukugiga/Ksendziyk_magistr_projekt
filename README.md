@@ -1,1 +1,1 @@
-https://kukugiga.github.io/Rsendziyk_magistr_projekt/
+https://kukugiga.github.io/Ksendziyk_magistr_projekt/
